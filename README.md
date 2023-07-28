@@ -1,4 +1,4 @@
-### Hi 🌱
+### Hi! 🌱
 
 <!--
 **heloisaM888/heloisaM888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
